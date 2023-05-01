@@ -15,3 +15,6 @@ Analytics on report
 SQL Script
 category of hotel management type course
 Age Calculator - https://www.instagram.com/p/CrQlMIMvDJV/?igshid=YmMyMTA2M2Y=
+
+--> From where can we prepare for the particular exam.
+--> AVIATION EXams
